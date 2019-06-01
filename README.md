@@ -1,3 +1,3 @@
 # github_experiments
 
-&‌infin;
+&infin;
